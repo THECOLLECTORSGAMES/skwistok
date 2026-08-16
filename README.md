@@ -6,9 +6,9 @@
 
 
 ⠀˚.୨୧˚
-⠀　⠀  　⠀ pancakes   ⋮  they/them/dove/doveself　　 　  
+⠀　⠀  　⠀ pancakes   ⋮   jerma   ⋮   collector　　 　  
 
-⠀　　𐙚　　this is a alt so i dont have anythin 4 u 2 look @ really 　 ₊  ◞　
+⠀　　𐙚　　alt, my main is FORCEDNATURE 　 ₊  ◞　
 
 
-　˙　　˳　　⁺　　i love my partners
+　˙　　˳　　⁺　　i love my frienddss 
