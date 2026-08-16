@@ -1,7 +1,8 @@
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/0618840e-659c-4981-899f-2dd8cc8ad952" align="left" hspace="25"/>
 
-<div align="center">
 
-<img width="500" height="500" alt="Untitled186_20260721212135" src="https://github.com/user-attachments/assets/f1394a29-0014-432e-b6d1-51973083c9fd" align="left" hspace="25"/>
+
+
 
 
 
